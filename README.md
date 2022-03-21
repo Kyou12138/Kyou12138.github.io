@@ -1,1 +1,1 @@
-# Kyou12138.github.io
+# Life is Fantastic.
